@@ -7,7 +7,7 @@
 
 **[ILB 바로가기]**
 
-🔗 https://www.ilovebaby.shop
+🔗 https://www.ilovebaby.store/
 
 **[테스트 계정]**
 
